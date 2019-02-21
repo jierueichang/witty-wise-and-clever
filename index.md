@@ -1,5 +1,3 @@
-# Witty, Wise and Clever
-
 The sun scattered rays of burning light into the airport as Witty, Wise and Clever watched the plane take off from LaGuardia, carrying their parents to “somewhere away from this noisy and New York City”. Saying that “Wise is old enough to look over you” (even though he was only five minutes older than the rest), they had left them to care for themselves.
 
 “What should we do this summer?” asked Clever.
